@@ -1,7 +1,7 @@
 Trần Lý Chí BIT-220022
 
-![alt text](image.png)
-![alt text](image-1.png)
-![alt text](image-2.png)
 
+![Uploading image.png…]()
+
+![image](https://github.com/user-attachments/assets/a3f6ed14-ed57-4867-9dc2-b15412883f85)
 
